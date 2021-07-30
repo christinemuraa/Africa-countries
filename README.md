@@ -1,2 +1,2 @@
 # Africa-countries
-Uganda is  best country in African
+Uganda is the best country in African
